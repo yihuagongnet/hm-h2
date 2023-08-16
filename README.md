@@ -12,6 +12,8 @@ https://zxhm.cfd
 
 # hm-h2 zxhm最新韩漫最新网址：
 
+**https://hanmanzuixin.com** （2023.8.16更新）
+
 https://zxhm.sbs
 
 https://zxhm.top
