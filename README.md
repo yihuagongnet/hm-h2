@@ -14,6 +14,8 @@ https://zxhm.cfd
 
 **https://hanmanzuixin.com** （2023.8.16更新）
 
+https://zxhm.gay （2023.8.16更新）
+
 https://zxhm.sbs
 
 https://zxhm.top
